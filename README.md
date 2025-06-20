@@ -1,4 +1,4 @@
-# MakasWeaponn
+# hi my names Jack but People also call me William or Ritchie
 
 dni list : 
 - Fruitcake shippers (the toxic ones)
